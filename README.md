@@ -20,4 +20,4 @@
 ---
 
 ### 🌎 Onde me encontrar
-- 💼 [LinkedIn]([https://www.linkedin.com/](https://www.linkedin.com/in/anna-martins-198ba4247/))
+- 💼 [LinkedIn](https://www.linkedin.com/in/anna-martins-198ba4247/)
